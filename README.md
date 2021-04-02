@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... [LinkedIn](https://www.linkedin.com/in/umer-naeem-20888785/)
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Nothing
--->
